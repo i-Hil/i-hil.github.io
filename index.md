@@ -7,3 +7,4 @@ Luna Lovegood is a fictional character in the Harry Potter books written by J. K
 * direct
 * honest
 > My mum always said things we lose have a way of coming back to us in the end. If not always in the ways we expect.
+<img src="https://upload.wikimedia.org/wikipedia/commons/thumb/8/81/Evanna_Lynch_acrylic_ink.jpg/800px-Evanna_Lynch_acrylic_ink.jpg"/>
