@@ -6,3 +6,4 @@ Luna Lovegood is a fictional character in the Harry Potter books written by J. K
 * can see thestrals
 * direct
 * honest
+> My mum always said things we lose have a way of coming back to us in the end. If not always in the ways we expect.
